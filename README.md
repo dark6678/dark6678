@@ -1,0 +1,5 @@
+- hey i am dark.
+- i am thinking of creating a game
+- i am learning how to code so please help me:)
+- pleasehelp me code a game
+- email me at darkpuppet6678@gmail.com to help me code
